@@ -7,3 +7,4 @@
 ## berapa kalipun dihantam, tetap berbunyi ting-ting
 ## musuh saya bukanlah manusia, musuh saya adalah diri saya sendiri ( ketika sakit melanda )
 ## monopoli terhadap informasi
+## berkurangnya rasa tanggung jawab sehingga abai terhadap kesehatan orang lain
