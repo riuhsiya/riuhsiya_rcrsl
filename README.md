@@ -8,3 +8,27 @@
 ## musuh saya bukanlah manusia, musuh saya adalah diri saya sendiri ( ketika sakit melanda )
 ## monopoli terhadap informasi
 ## berkurangnya rasa tanggung jawab sehingga abai terhadap kesehatan orang lain
+## saya beri sesuatu yang lebih baik, asalkan kamu beri dia sesuatu yang dia ingginkan
+
+##
+
+##
+
+##
+
+##
+
+##
+
+##
+
+##
+
+##
+
+##
+
+##
+
+##
+
