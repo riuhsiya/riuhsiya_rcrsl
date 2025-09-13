@@ -14,7 +14,7 @@
 
 ## tawar harga ke ..., dng menjanjikan sesuatu yg lain saat tiba di tujuan
 
-##
+## penyakit tanaman apa saja, darimana saja, perawatan bagaimana
 
 ##
 
