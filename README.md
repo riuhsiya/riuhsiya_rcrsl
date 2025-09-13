@@ -24,7 +24,7 @@
 
 ## hanya diri dan pencipta ku yng mengetahui, seberapa, sampai dimana, seberapa dalam berbagai hal yang telah aku alami sendiri, beberapa bagian terasa samar diingatan dan sulit memastikan, aku putuskan utk mengabaikanya utuk beberapa saat, mungkin suatu saat aku kembali bisa melihat ingatan itu dengan jelas
 
-##
+## alam sudah memberikan banyak ilmu dan itu semua basic (pondasi), semua ilmuan juga mengetahuinya
 
 ##
 
