@@ -16,7 +16,7 @@
 
 ## penyakit tanaman apa saja, darimana saja, perawatan bagaimana
 
-##
+## sakit segitu saja, selama kaki dan tangan masih bisa bergerak untuk melakukan aktifitas walaupun sedikit terbatas, tetap berjuang
 
 ##
 
