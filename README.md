@@ -12,7 +12,7 @@
 
 ## wong lanang g kenek diatur, sing ngatur yo lanange dewe
 
-##
+## tawar harga ke ..., dng menjanjikan sesuatu yg lain saat tiba di tujuan
 
 ##
 
