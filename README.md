@@ -22,7 +22,7 @@
 
 ## terlahir sebgai laki2 dikaruniai/amanah otoritas tertinggi atas kebebasannya dalam menjalani makna hidup (dari hasil keringat sendiri/usaha sendiri/karya sendiri) misal, makna dan nikmanya menjalani hidup sebgai perkerja keras, lain dengan menerima hasil keringat orng lain dengan cara cuma2
 
-##
+## hanya diri dan pencipta ku yng mengetahui, seberapa, sampai dimana, seberapa dalam berbagai hal yang telah aku alami sendiri, beberapa bagian terasa samar diingatan dan sulit memastikan, aku putuskan utk mengabaikanya utuk beberapa saat, mungkin suatu saat aku kembali bisa melihat ingatan itu dengan jelas
 
 ##
 
