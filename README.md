@@ -18,7 +18,7 @@
 
 ## sakit segitu saja, selama kaki dan tangan masih bisa bergerak untuk melakukan aktifitas walaupun sedikit terbatas, tetap berjuang
 
-## berniat baik mengembalikan uang yg terjatuh, pass yg punya didepan kotak amal, disalah pahami sebagai titipan
+## berniat baik mengembalikan uang yg terjatuh, pass yg punya didepan kotak amal, disalah pahami sebagai titipan. **SOLUSI:** latih diri untuk mempertanyakan sesuatu + catat.
 
 ## terlahir sebgai laki2 dikaruniai/amanah otoritas tertinggi atas kebebasannya dalam menjalani makna hidup (dari hasil keringat sendiri/usaha sendiri/karya sendiri) misal, makna dan nikmanya menjalani hidup sebgai perkerja keras, lain dengan menerima hasil keringat orng lain dengan cara cuma2
 
