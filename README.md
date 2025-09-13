@@ -20,7 +20,7 @@
 
 ## berniat baik mengembalikan uang yg terjatuh, pass yg punya didepan kotak amal, disalah pahami sebagai titipan
 
-##
+## terlahir sebgai laki2 dikaruniai/amanah otoritas tertinggi atas kebebasannya dalam menjalani makna hidup (dari hasil keringat sendiri/usaha sendiri/karya sendiri) misal, makna dan nikmanya menjalani hidup sebgai perkerja keras, lain dengan menerima hasil keringat orng lain dengan cara cuma2
 
 ##
 
