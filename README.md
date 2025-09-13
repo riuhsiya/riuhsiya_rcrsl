@@ -18,7 +18,7 @@
 
 ## sakit segitu saja, selama kaki dan tangan masih bisa bergerak untuk melakukan aktifitas walaupun sedikit terbatas, tetap berjuang
 
-##
+## berniat baik mengembalikan uang yg terjatuh, pass yg punya didepan kotak amal, disalah pahami sebagai titipan
 
 ##
 
