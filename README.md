@@ -10,7 +10,7 @@
 ## berkurangnya rasa tanggung jawab sehingga abai terhadap kesehatan orang lain
 ## saya beri sesuatu yang lebih baik, asalkan kamu beri dia sesuatu yang dia ingginkan
 
-##
+## wong lanang g kenek diatur, sing ngatur yo lanange dewe
 
 ##
 
