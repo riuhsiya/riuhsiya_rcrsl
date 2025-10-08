@@ -26,9 +26,9 @@
 
 ## alam sudah memberikan banyak ilmu dan itu semua basic (pondasi), semua ilmuan juga mengetahuinya
 
-##
+## anda tidak termasuk dalam antrian, anda lewat jalur langit
 
-##
+## 
 
 ##
 
