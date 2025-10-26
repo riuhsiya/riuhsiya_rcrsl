@@ -28,7 +28,11 @@
 
 ## anda tidak termasuk dalam antrian, anda lewat jalur langit
 
-## 
+## dikasih sesuatu dengan memberikan kembalianya
+
+## mempertanyakan sesuatu lewat tindakan
+
+##
 
 ##
 
