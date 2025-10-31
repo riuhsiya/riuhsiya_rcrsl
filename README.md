@@ -32,7 +32,7 @@
 
 ## mempertanyakan sesuatu lewat tindakan
 
-##
+## inikah yang dimaksud, gk ad uangnya gini
 
 ##
 
