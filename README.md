@@ -34,5 +34,7 @@
 
 ## inikah yang dimaksud, gk ad uangnya gini
 
+## carikan aku perawan !!! takut perawan jadi-jadian
+
 ##
 
