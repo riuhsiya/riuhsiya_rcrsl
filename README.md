@@ -38,3 +38,4 @@
 
 ## kelompok yang menggiring opini dan narasi
 
+## untung tidak disuruh menungangi, coba orang dulu !!! orang yang sering menjarah milik orang lain, yh udh pasti bakalan kejadian
