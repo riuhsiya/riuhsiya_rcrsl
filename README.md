@@ -36,5 +36,5 @@
 
 ## carikan aku perawan !!! takut perawan jadi-jadian
 
-##
+## kelompok yang menggiring opini dan narasi
 
