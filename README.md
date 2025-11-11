@@ -41,3 +41,5 @@
 ## untung tidak disuruh menungangi, coba orang dulu !!! orang yang sering menjarah milik orang lain, yh udh pasti bakalan kejadian
 
 ## siapa juga yang mau memperhatikan mu, kalau memang ada yang memperhatikan mu, udah pasti kamu banyak uang
+
+## tidak memiliki wewenang, hanya karyawan biasa 
