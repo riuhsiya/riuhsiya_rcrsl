@@ -43,3 +43,6 @@
 ## siapa juga yang mau memperhatikan mu, kalau memang ada yang memperhatikan mu, udah pasti kamu banyak uang
 
 ## tidak memiliki wewenang, hanya karyawan biasa 
+
+## membuktikan waktu tidak bisa dibeli dengan uang
+
