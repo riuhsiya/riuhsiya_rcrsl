@@ -46,3 +46,4 @@
 
 ## membuktikan waktu tidak bisa dibeli dengan uang
 
+## keburu dikrumuni koloni semut
