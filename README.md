@@ -47,3 +47,5 @@
 ## membuktikan waktu tidak bisa dibeli dengan uang
 
 ## keburu dikrumuni koloni semut
+
+## tanpa mengurangi rasa hormat saya terhadap anda, saya merasa sangat senang apabila anda mau menerima pemberian dari saya, saya mohon meski pemberian ini tidak begitu seberapa, akan tetapi pemberian ini begitu berarti bagi saya
